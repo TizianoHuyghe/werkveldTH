@@ -1,5 +1,0 @@
-hallalalalavflgévl
-hallalalalagsdgdgs
-bomabaCLaaaaaaaaaat
-LOSER n
-nbf
