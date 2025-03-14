@@ -1,4 +1,5 @@
 hallalalalavflgévl
 hallalalalagsdgdgs
 bomabaCLaaaaaaaaaat
-LOSER
+LOSER n
+nbf
